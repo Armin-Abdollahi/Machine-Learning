@@ -1,14 +1,6 @@
 # Machine-Learning
 
 
-
-
-
-
-h
-
-۶۶
-
 ![Screenshot_20241029_000816_LinkedIn](https://github.com/user-attachments/assets/434cc7a3-62b4-4a86-ba10-bf02b0f57714)
 
 
